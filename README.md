@@ -36,568 +36,128 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. 1. Queſtion.
+1. ¶ THE CONTENTES OF this Booke.
 
-    _ Aunſwere.
+1. THE PREFACE.
 
-    _ Aunſwere.
+    _ 1. Queſtion.
 
-    _ Aunſwere.
+      * Aunſwere.
 
-    _ Aunſwere.
+    _ 2. Queſtion.
 
-    _ Aunſwere.
+      * Aunſwere.
 
-    _ Aunſwere.
+    _ 3. Queſtion.
 
-1. 2. Queſtion.
+      * Aunſwere.
 
-    _ Aunſwere.
+    _ 4. Queſtion.
 
-    _ Aunſwere.
+      * Aunſwere.
 
-    _ Aunſwere.
+    _ 5 ¶ An other Queſtion and playne example meete for ſuche as can not extracte one nomber out of an other.
 
-    _ Aunſwere.
+      * Aunſwere.
 
-    _ Aunſwere.
+    _ 6 An other very plaine queſtion or example, eaſye for all men to conceaue, and in this time is commonly vſed,
 
-    _ Aunſwere.
-
-1. 3. Queſtion.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-1. 4. Queſtion.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-1. 5 ¶ An other Queſtion and playne example meete for ſuche as can not extracte one nomber out of an other.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-1. 6 An other very plaine queſtion or example, eaſye for all men to conceaue, and in this time is commonly vſed,
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
-
-    _ Aunſwere.
+      * Aunſwere.
 
 #####Body#####
+January hath. 31. daies.SonneryſethHoure7. 34 .mi.ſetteth.4. 26 .mi.The day is. 8. houres. 26 .mi. T
+    _ January hath. 31. daies.
 
-1. January hath. 31. daies.
+    _ February hath. 28. daies.
 
-    _ ¶ Example.
+    _ Marche hath. 31. daies.
 
-      * ¶ Aunſwer.
+    _ Aprill hath. 30. daies.
 
-    _ ¶ Example.
+    _ May hath. 31. daies.
 
-      * ¶ Aunſwer.
+    _ June hath. 30. daies.
 
-    _ ¶ Example.
+    _ Iuly hath. 31. daies.
 
-      * ¶ Aunſwer.
+    _ Auguſt hath. 31. daies.
 
-1. February hath. 28. daies.
+    _ September hath. 30. daies.
 
-    _ ¶ Example.
+    _ October hath. 31. daies.
 
-      * ¶ Aunſwer.
+    _ Nouember hath. 30. daies.
 
-    _ ¶ Example.
+    _ December hath. 31. daies.
+An Almanacke for .lx. yeres yet to come.The yere of our lorde.The Prime.The Epact.Domi. letter.Leape
+1. A neceſsary and perfecte rule to knowe when the Termes beginne and ende, and howe many Retornes are in euery Terme.
 
-      * ¶ Aunſwer.
+1. ¶ A Table, wherin thou mayſt readely fynde the Epact, the Prime, or Golden nombre, the Dominicall Letter, and the Leape yere for euer.
 
-    _ ¶ Example.
+    _ ¶ A declaracion of this Rundell and Circles in the ſame,
 
-      * ¶ Aunſwer.
+    _ ¶ The Epact.
 
-1. Marche hath. 31. daies.
+    _ ¶ The Prime or Golden nomber.
 
-    _ ¶ Example.
+    _ ¶ The Dominicall letter.
 
-      * ¶ Aunſwer.
+    _ ¶ The Leape yeere.
 
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. Aprill hath. 30. daies.
+1. A Rule to knowe at all tymes the Age of the Moone, her chaunge and ful.
 
     _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. May hath. 31. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. June hath. 30. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. Iuly hath. 31. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. Auguſt hath. 31. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. September hath. 30. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. October hath. 31. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. Nouember hath. 30. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. December hath. 31. daies.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ A declaracion of this Rundell and Circles in the ſame,
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ The Epact.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ The Prime or Golden nomber.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ The Dominicall letter.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ The Leape yeere.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Example.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
 ANOTHER example, I wold know the 19. daye of September next comminge 1571. how old the Mone ſhalbe: 
-    _ ¶ Example.
+1. On the other ſyde of this leafe foloweth a Table, whiche ſheweth howe you may readely finde Eaſter and all other moueable feaſtes of the yere for euer, as well for tymes paſt, as for the times to come.
 
-      * ¶ Aunſwer.
+    _ ¶ A deſcripcion of the ordre and vſe of the aforeſaid Table as foloweth.
 
-    _ ¶ Example.
+      * ¶ Example.
 
-      * ¶ Aunſwer.
+1. A COMPƲTAcion of yeeres.
 
-    _ ¶ Example.
+1. ¶ Here foloweth certeine Tables wherin you may learne the true Houre and Minute of the Ebbes and Fluddes in a great many of the portes of Englande.
 
-      * ¶ Aunſwer.
+    _ ¶ A declaracion of the Tables, laſt before moncioned.
 
-1. ¶ A deſcripcion of the ordre and vſe of the aforeſaid Table as foloweth.
+      * ¶ Example.
 
-    _ ¶ Example.
+¶ Aunſwer.
+A Table ſhewinge what Signe the Moone is in, and ſhall be for euer, and ſhewynge alſo the times good
+    _ ¶ A declaracion of the Table, that is on the other ſide, ſhewyng at all tymes what ſigne the Moone is in.
 
-      * ¶ Aunſwer.
+      * ¶ Example.
 
-    _ ¶ Example.
+1. ¶ THE MONETH, DAY, AND PLACE, OF ALL THE principall Faires kept in England, more orderly & largelyer ſet forth then heretofore hath ben.
 
-      * ¶ Aunſwer.
+    _ ¶ Ianuary.
 
-    _ ¶ Example.
+    _ ¶ February.
 
-      * ¶ Aunſwer.
+    _ ¶ Marche.
 
-1. ¶ A declaracion of the Tables, laſt before moncioned.
+    _ ¶ Aprill.
 
-    _ ¶ Example.
+    _ ¶ May.
 
-      * ¶ Aunſwer.
+    _ ¶ Iune.
 
-    _ ¶ Example.
+    _ ¶ Iuly.
 
-      * ¶ Aunſwer.
+    _ ¶ Auguſt.
 
-    _ ¶ Example.
+    _ ¶ September.
 
-      * ¶ Aunſwer.
+    _ ¶ October.
 
-1. ¶ A declaracion of the Table, that is on the other ſide, ſhewyng at all tymes what ſigne the Moone is in.
+    _ ¶ Nouember.
 
-    _ ¶ Example.
+    _ ¶ December.
 
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Ianuary.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ February.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Marche.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Aprill.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ May.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Iune.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Iuly.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Auguſt.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ September.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ October.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ Nouember.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-1. ¶ December.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
-
-    _ ¶ Example.
-
-      * ¶ Aunſwer.
+1. ¶ The highe wayes from any notable towne in Englande to the Cittie of London. And likewiſe from one notable towne to an other, newely collected and ſet forth, in a more larger and better maner then heretofore it hath ben.
 
 #####Back#####
-A litle treatise, conteyning many proper tables and rules very necessary for the vse of al men, the 
+¶ IMPRINTED AT LONDON IN FLETESTRETE within Temple barre at the ſigne of the hand and ſtarre, by Ric
 **Types of content**
 
   * There are 5 **verse** lines!
